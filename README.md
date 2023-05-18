@@ -14,4 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Actuarial Science PhD Student at University of Waterloo, Canada.
+Actuarial Science PhD Student at University of Waterloo, Canada from 2022.
+Actuarial Science Master Student at University of Waterloo, Canada from 2021 to 2022.
+Applied Math Bachelor Student at Université Paris-Dauphine from 2018 to 2021.
